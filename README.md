@@ -1,4 +1,4 @@
-# dannytaylor (MCLegoMan)
+# dannytaylor (mclegoman)
 
-If you want to support my work, I accept donations on [BuyMeACoffee/mclegoman](https://buymeacoffee.com/mclegoman).  
-Looking for a mod commission? Email me at [daniel@mclegoman.com](mailto:daniel@mclegoman.com).  
+if you want to support my work, i accept donations on [ko-fi/mclegoman](https://ko-fi.com/mclegoman).  
+looking for a mod commission? email me at [daniel@mclegoman.com](mailto:daniel@mclegoman.com).  
